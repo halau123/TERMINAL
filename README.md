@@ -3,4 +3,4 @@
 
 Yooo wassup
 
-https://cdn.discordapp.com/attachments/976678013938831383/1094483554966196244/Screenshot_20230404_114717.png
+![Screenshot_20230404_114717](https://user-images.githubusercontent.com/129088725/230755004-0fd9caa7-fffb-4d69-8856-bf1a520f73fa.png)
